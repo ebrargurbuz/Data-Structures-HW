@@ -1,0 +1,5 @@
+Ogrencı Bilgileri:
+
+Ebrar Gürbüz
+2410206354
+2.Öğretim
